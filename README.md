@@ -1,5 +1,5 @@
 # MiraiSouzouten
 
-##ƒƒ“ƒo[
+##menber
 
 *testmember
